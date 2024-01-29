@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Fosyme.
 - 👀 I’m interested in DevOps.
-- 🌱 I’m currently learning Cyber Security.
+- 🌱 I’m just going with the flow.
 - 📫 How to reach me Fosyme@qq.com.
